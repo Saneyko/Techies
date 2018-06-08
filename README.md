@@ -1,0 +1,2 @@
+# Techies
+MinerScript u eblan
